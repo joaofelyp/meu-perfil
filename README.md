@@ -8,7 +8,7 @@ Meu nome é João Felyp
 
 ### Você pode entrar em contato comigo :00001113587374SP@al.educacao.sp.gov.br
 
-joao felyp do levi ackiman
+joao felyp do levi ackerman
 
 @marcelopaludetto
 
